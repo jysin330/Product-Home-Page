@@ -19,7 +19,7 @@
 
 ## TIME TAKEN TO COMPLETE
 
-- ### It takes 1 day above.
+- ### It takes 3-4hour.
 
 ## PHOTOS
 
